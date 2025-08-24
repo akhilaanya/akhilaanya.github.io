@@ -1,1 +1,1 @@
-My blog!
+Hosts my blog and other personal projects
