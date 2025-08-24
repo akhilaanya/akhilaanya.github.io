@@ -1,6 +1,8 @@
 ---
 layout: page
 title: Blog Archive
+title: Experience
+title: Biography
 ---
 
 {% for tag in site.tags %}
