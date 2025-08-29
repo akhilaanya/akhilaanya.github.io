@@ -1,29 +1,36 @@
 # august 25, 2025 
 ## 1:01 pm CDT
+## on forgetting
 
 ### part 1: growing older
-Some time before graduating high school, I realized I was growing older. And not in the way one normally concludes this. My health is (knock on wood) stable and this revelation was distant from any sudden life changes. Slowly, time ticked by and I was almost 18 years old. For someone who's been a child their whole life, this was shocking and confusing. 
+Some time before graduating high school, I realized I was growing older. And not in the way one normally concludes this. My health is (knock on wood) stable and this revelation was distant from any sudden life changes. Slowly, time ticked by and I was almost 18 years old. For someone who's been a child their whole life, this was shocking and confusing. The days long but the years short and all that. 
+
+And I haven't much kept record of my life. There's the elementary school yearbooks, the old artwork, the literal thousands of pictures my parents took at band recitals, swim practices, and just sitting in the backyard. But no true time capsule. Especially in the Internet age, replacing letters and its physicality with text messages and the virtual, on phones I've long since rid of for the newer, the better. (Many times while reading my thoughts, you may feel an insatiable urge to say "ok boomer.") I felt like this needed to change.
+
+Some of this was self-absorbed. I figured, and part of me still does, that when I'm a famous [insert here] some day, people will want to know what my genius was like in my youth. (Answer? Self-absorbed.) Or, at the very least, my children will want to know. And, most importantly, I would. I worried that one day, I'd wake up and I'd be thirty, or fifty, or eighty and have a sudden urge to remember what life was like in 2025. But I wouldn't be able to; the days passed and all they contained with them. That bothered me deeply. 
+
+I have a very good memory, and I remember playing with my fingers--I'd make up stories of them taking out the trash(??)--or sitting on the couch with a stack of books and a bowl of pickles. But I don't really remember what I thought, how I felt, the things I did on a random Tuesday after school. Maybe I want to.
+
+I also learned more recently, while reading a favorite blog, that the Land of Punt was an ancient kingdom the ancient Egyptians were very fond of. They'd travel there regularly to trade just about anything with just about anyone. Everyone loved Punt. So they wrote about it extensively, the landscape and the smells and everything about it. Except, of course, for where it actually was. I guess they figured it's pointless... everyone knows Punt! Wikipedia says modern evidence places it somewhere in Eritrea, but we really don't know for sure. Who knows what we could have learned about a place totally lost to time? Moreover, while on the same blog, I realized the reason we know most things from thousands of years ago is because neurotics like me wrote it down.
+
+So I started keeping a journal halfway through my senior year of high school, something I'd tried in my youth but never stuck to because I felt I had nothing to write about. I left the fuzzy monogrammed notebook, complete with leopard print and a plastic lock/key, with only a page or two filled. And I had no reason to believe I'd have much more to write about a decade later.
 
 ### part 2: what is it I plan to do? 
+But to this day, just about a year-and-a-half later, I have filled five whole notebooks. The consistency has certainly shifted in this time--I still slap myself for not documenting my first week of college--but I have mostly written about everything in my life. I went to NYC for my birthday last month and I recorded every single thing I did in order, including conversations, first impressions, emotions. The high school journals often fill me with intense cringe to reread, just as the current one probably will in due time, but it may be something I want to look back on in a decade or so. If it's not, oh well, I can always burn it then. It's made me more of an elaborate and thorough writer also, and my penmanship has certainly improved. My main college-era notebook is still in Seattle but I've enjoyed reading what I do have and remembering the time I got stuck in Ballard at 1 am because we wanted Taco Bell. 
 
+But I have tons of other thoughts that don't extend to just my personal life. I often don't write about many world events, because my own life has so much to say, but I definitely think about them. For instance, I left just two lines to the U.S. strikes in Iran a few months ago. I have paragraphs and paragraphs of opinions! I write about the books I read and the movies I watch, the NPR segments I heard, but again, not in much detail. It's typically a sentence: "I read a memoir from a journalist." I think these sorts of things should be recorded too. 
+
+So, here is a blog. It will feature the above, plus more! I write a surprising amount of sermons, including one that will be up some time soon. I write short stories, science breakdowns, poems, screenplays, anything really. None I plan to use for financial gain, so most or all will finally leave my Microsoft Word and enter the Real World. 
 
 ### part 3: creating more... with caveats
-I have only ever written under aliases (usually my middle name) or, most often, no name at all. It's somewhat odd to see my creative work tied so closely to my personal identity, especially online. So, before I start posting heavily on this website, I want to add some disclaimers. 
+I have only ever written under aliases (usually my middle name) or, most often, no name at all. It's somewhat odd to see my creative work tied so closely to my personal identity, especially online. So, before I start posting heavily on this website, I want to add some footnotes. 
 
 I'm primarily concerned about protecting the privacy of my close family and friends, who didn't ask me to start this blog. I started this project a month out from my return to school and Washington State, so these next few posts will just feature family members, who all support this blog and consented to infrequently appear as the mom, dad, and little brother. But I have considered what I might write about once classes start up again. I want to maintain authenticity and transparency while respecting everyone's right to consent. 
 
 I decided that I will omit peoples' names entirely, to protect their privacy. They will be referenced as "my friend", "my roommate", "my physics professor." But obviously, and thankfully, I have more than one of all of those descriptors. If, for example, there are three friends involved in a story, I'll use their first initials. If two+ people have the same first initial, I'll randomize their referential letter. 
 
-I will also exercise discretion in blurring details surrounding a person, location, or event; for instance, in a previous anonymous blog, I'd written that a friend and I went out for dinner where they celebrated recent success on an altruistic project. I went into detail about what that project was and why it mattered to both of us, but I'm highly unlikely to do so here. Randos can easily find who my friend is, and this isn't Instagram where the follower count is hidden.
+I will also exercise discretion in blurring details surrounding a person, location, or event; for instance, in a previous anonymous blog, I'd written that a friend and I went out for dinner where they celebrated recent success on an altruistic project. I went into detail about what that project was and why it mattered to both of us, but I'm highly unlikely to do so here. Randos can easily find who my friend is when they know my name and the university I attend, when they can look up my Instagram page with just a few presses of the fingers. But the structural integrity of the story will remain. At the end of the day, I'm not _that_ worried about being doxxed via GitHub Pages.
 
-Moreover, like many/most college students, I go to parties. I enjoy the social atmosphere and music. But for someone who doesn't drink, smoke, or engage in otherwise illegal/questionable behavior, I worry quite a bit about future employers seeing things they shouldn't. I have nothing to hide--starting a blog wouldn't be the wisest choice if I did--but I am not about to hang my career in the balance because of a random personal project. 
+Moreover, like many/most college students, I go to parties. I enjoy the social atmosphere and music. But for someone who doesn't drink, smoke, or engage in otherwise illegal/questionable behavior, I worry quite a bit about future employers seeing things they shouldn't. I have nothing to hide--starting a blog wouldn't be the wisest choice if I did--but I am not about to hang my career in the balance because of a random personal project. Excuse me if most of these stories are not particularly enthralling. 
 
-I admit I'm sacrificing pieces of my life, but the calculus only makes sense one way. Either I get more clicks or I keep stable friendships. 
-I like Googling my name to yield only the character sketch of my likeness. 
-
-
-here is the majority of the personal information I'm willing to share:
-* I was born + grew up in new jersey, lived in austin, texas for two years, then moved to seattle in late 2024
-* I am a cisgender, straight, not disabled, woman of indian origin who uses she/her pronouns
-* I have a mom, dad, and younger brother. most of my other relatives still live in India.
-* I'm doing my undergrad in astro/phys + poli sci at the university of washington
+I will probably write about politics at one point or another. I am definitely progressive but I'm registered as an independent. I doubt anything I say will really incite any keyboard warriors into action--my biggest hot take is that people shouldn't have hot takes--but if it does... this doesn't have a comments section. Maybe send me a strongly worded email?
