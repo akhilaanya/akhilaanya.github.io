@@ -4,5 +4,5 @@ My research interests include binary star systems, dark energy, surveying, and c
 
 Aside from work and school, I play the tenor saxophone in jazz/concert bands, run half marathons, read and write a lot, do all sorts of puzzles, and grow carrots/peppers/tomatoes. I also enjoy the occasional bike ride. 
 
-I'm really not on the socials, but I've included my email below! Send me whatever's on your mind. I promise I'll listen or read or watch any recommendation sent my way.
+I'm not really on the socials, but I've included my email below! Send me whatever's on your mind. I promise I'll listen or read or watch any recommendation sent my way.
 
