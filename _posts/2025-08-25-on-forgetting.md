@@ -1,8 +1,8 @@
 # on forgetting
-## 1:01 pm CDT
-## august 25th, 2025
+### august 25th, 2025
+### 1:01 pm CDT
 
-### part 1: growing older
+#### part 1: growing older
 Some time before graduating high school, I realized I was growing older. And not in the way one normally concludes this. My health is (knock on wood) stable and this revelation was distant from any sudden life changes. Slowly, time ticked by and I was almost 18 years old. For someone who's been a child their whole life, this was shocking and confusing. The days long but the years short and all that. 
 
 And I haven't much kept record of my life. There's the elementary school yearbooks, the old artwork, the literal thousands of pictures my parents took at band recitals, swim practices, and just sitting in the backyard. But no true time capsule. Especially in the Internet age, replacing letters and its physicality with text messages and the virtual, on phones I've long since rid of for the newer, the better. (Many times while reading my thoughts, you may feel an insatiable urge to say "ok boomer.") I felt like this needed to change.
