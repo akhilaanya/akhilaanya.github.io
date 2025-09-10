@@ -1,6 +1,6 @@
-# august 25, 2025 
+# on forgetting
 ## 1:01 pm CDT
-## on forgetting
+## august 25th, 2025
 
 ### part 1: growing older
 Some time before graduating high school, I realized I was growing older. And not in the way one normally concludes this. My health is (knock on wood) stable and this revelation was distant from any sudden life changes. Slowly, time ticked by and I was almost 18 years old. For someone who's been a child their whole life, this was shocking and confusing. The days long but the years short and all that. 
