@@ -2,7 +2,7 @@ I am a second-year undergrad at the University of Washington studying astro/phys
 
 My research interests include binary star systems, dark energy, surveying, and cosmology. I enjoy working with hardware, like for radio astronomy purposes. 
 
-I'm also particularly passionate about asylum law and human rights work. I regularly write special counsel reports and translate/fill the I-589 form for the refugee-oriented nonprofit [Casa Marianella](https://www.casamarianella.org/about-us/) in my hometown of Austin, Texas.
+I'm also particularly passionate about asylum law and human rights work. I regularly write special counsel reports and translate/fill the I-589 form for the refugee-oriented nonprofit [Casa Marianella](https://www.casamarianella.org/about-us/) in my hometown of Austin, Texas. 
 
 I am an Undergraduate Fellow in the Center for Environmental Politics at the University of Washington. 
 
