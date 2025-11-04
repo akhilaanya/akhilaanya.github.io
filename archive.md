@@ -5,6 +5,9 @@ title: Archive
 
 ## 2025
 
+### November
+[november 3, 2025: Metal Earth models](https://akhilaanya.github.io/2025/11/03/Metal-Earth-Models.html) 
+
 ### September
 [september 12, 2025: nothing gold can stay](https://akhilaanya.github.io/2025/09/12/nothing-gold-can-stay.html)
 
