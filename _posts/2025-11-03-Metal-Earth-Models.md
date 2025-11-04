@@ -10,6 +10,7 @@ I have a running list of future blog posts, and none of them entice me today. Wh
 
 This is just a meta post filled with whatever comes to mind.
 -------------------------------------------------------------------------------------- --------------------------------------------------------------------------------------
+
 My laundry is done now, but some things can be put on hold. 
 
 I think in the recent weeks, I’ve been changing my views on life. It’s a continuation of the last year or so, but hella concave up. I am slowly ridding myself of the guilt and shame that can plague us all, the drive towards productivity I don’t believe in, and the overthinking specific to just me, it seems. Life is wonderful, this is known, but I can get caught up in comparisons and creating mountains out of molehills: when I am in a slump, it is hard to see past it or think critically about it. I am using a lot of metaphors and flowery language because I am rusty! Practice makes not perfect but maintenance, and I am my dad’s 2003 sedan, chugging along yet one more day. 
