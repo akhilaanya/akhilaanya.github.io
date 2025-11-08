@@ -6,6 +6,8 @@ title: Archive
 ## 2025
 
 ### November
+[november 8, 2025: Mt. Stuart](https://akhilaanya.github.io/2025/11/08/mt-stuart.html)
+
 [november 3, 2025: Metal Earth models](https://akhilaanya.github.io/2025/11/03/Metal-Earth-Models.html) 
 
 ### September
