@@ -5,6 +5,9 @@ title: Archive
 
 ## 2025
 
+### December
+[december 22, 2025: Crushes and being crushed](https://akhilaanya.github.io/2025/12/22/crushes-and-being-crushed.html)
+
 ### November
 [november 8, 2025: Mt. Stuart](https://akhilaanya.github.io/2025/11/08/mt-stuart.html)
 
