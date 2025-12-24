@@ -6,6 +6,8 @@ title: Archive
 ## 2025
 
 ### December
+[december 24, 2025: Because He is God](https://akhilaanya.github.io/2025/12/24/because-he-is-god.html)
+
 [december 22, 2025: Crushes and being crushed](https://akhilaanya.github.io/2025/12/22/crushes-and-being-crushed.html)
 
 ### November
