@@ -24,6 +24,6 @@ Part of the reason anyone likes anyone romantically is because they think they�
 
 Plus, by these metrics of liking others, I could date anyone I enjoy spending a lot of time with. And I am definitely not dating any of my good friends or professors, thanks so much. And maybe we’d go on a date and decide that we don’t want to pursue it further anyway. There’s so many ways any situation can go wrong that getting bogged down by rejection on the first step is, while a totally valid feeling, not very helpful. 
 
-I’ll never meet anyone quite like this person that I liked. With the same physical attributes, or smile, or laugh, or set of interests. And I used to think this, in a sad way, when I moved to college: that no one here could quite compare to everyone I have loved before this. And they don’t. But it would be weird if they did! I am sure I’ll meet someone again who does like me back, and maybe it will work out, or it won’t. 
+I’ll never meet anyone quite like any of the people I have liked before. With the same physical attributes, or smile, or laugh, or set of interests. And I used to think this, in a sad way, when I moved to college: that no one here could quite compare to everyone I have loved before this. And they don’t. But it would be weird if they did! I am sure I’ll meet someone again who does like me back, and maybe it will work out, or it won’t. 
 
 Either way, every little thing gonna be alright. :)
