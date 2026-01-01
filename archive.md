@@ -7,6 +7,7 @@ title: Archive
 
 ### December
 [december 31, 2025: Hope survives](https://akhilaanya.github.io/2025/12/31/hope-survives.html)
+
 [december 24, 2025: Because He is God](https://akhilaanya.github.io/2025/12/24/because-he-is-god.html)
 
 [december 22, 2025: Crushes and being crushed](https://akhilaanya.github.io/2025/12/22/crushes-and-being-crushed.html)
