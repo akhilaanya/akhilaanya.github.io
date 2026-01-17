@@ -4,4 +4,4 @@ I am a second-year undergrad at the University of Washington triple majoring in 
 
 I play the tenor saxophone in jazz/concert bands, run long-distance, read and write a lot, do all sorts of puzzles, and garden. I also enjoy the occasional bike ride, and increasingly love painting! 
 
-You can contact me at my (personal) email below. I'd listen, watch, or read any recommendation sent my way. 
+You can contact me at my (personal) email below! Please send whatever's on your mind, but I'd especially listen, watch, or read any recommendations. 
