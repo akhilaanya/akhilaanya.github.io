@@ -1,0 +1,14 @@
+# Surely some revelation is at hand
+### Saturday, February 7, 2026 3:50 PM PST 
+### Seattle, Washington
+Here’s another one of those timed blog posts! This one’s at 20 minutes, because a group of us are going to see two of our great friends perform! One is doing wushu, which is an interpretive martial arts from China, and the other is doing taiko which is Japanese drumming. I don’t necessarily have time for a very in-depth blog post, so I’m opting to write about whatever’s on my mind and some personal life updates.
+
+I went to some great events this past week. Thursday night, a dear friend and I went to the Gender, Women and Sexuality Studies’ Black Feminst Reading Hour. We read a piece on reclaiming the erotic by Audre Lorde, and I felt rather out of my element because I’m unfamiliar with this brand of philosophical thinking. Like, defining the erotic alone is too abstract a concept for me to find easily tangible. Luckily, my friend, the host, and everyone else there had really great points and I felt better for going. I brought my favorite work in Black feminism (and feminism generally), “Eloquent Rage” by Dr. Brittney Cooper, but didn’t get a chance to talk about it. The host brought a couple of other pieces, and I ended up taking home “Art on My Mind” by bell hooks. I hope to get to it sometime this weekend, amid everything else I have to do, of course. 
+
+And last night, most of my friend group saw one of my other best friends act in the musical “Heathers.” He did a really wonderful job, and I’m so so proud of him. I don’t normally like musicals, and this is only the third one I’ve seen, but it was my favorite. (And one of them was The Lion King on Broadway from when I lived in New England.) The plot was engaging and funny, and I enjoyed being with my friends and seeing people I know act so wonderfully. 
+
+I often want to do many more thing than I have time for, usually because I struggle with managing my time well and feel the need for regimen where it’s unnecessary. Even so, I really enjoy going to events and things because there’s so much out there to do and learn about! But you have to balance what you actually have the bandwidth for. Sometimes I have decided to stay home and sleep early (or not) instead of hanging out with friends, and that does mean I see them less frequently. But I’ve made many more friends in my classes so I find I’m never really alone, and I see the old ones once every couple of days at least. 
+
+Next week maybe I’ll go to a jazz jam, organize a few meetups, standard Wednesday night concert band, origami club, perhaps? I want to go for a few nice long runs, get some new library books, try out new recipes, keep going on my paintings. And it’s Valentine’s Day weekend so there’ll be a few parties. And find some time to actually study in between ;-) 
+
+I must go now, as always, but I hope to write more soon. I know this was a pretty short entry. 
