@@ -2,6 +2,13 @@
 layout: page
 title: Archive
 ---
+## 2026
+
+### February
+[february 7, 2026: Surely, some revelation is at hand](https://akhilaanya.github.io/2026/02/07/surely-some-revelation-is-at-hand.html)
+
+### January
+[january 29, 2026: Hands Across America](https://akhilaanya.github.io/2026/01/29/hands-across-america.html)
 
 ## 2025
 
