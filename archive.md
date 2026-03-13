@@ -5,6 +5,8 @@ title: Archive
 ## 2026
 
 ### March
+[march 12, 2026: Can I get a connection?](https://akhilaanya.github.io/2026/03/12/can-I-get-a-connection.html)
+
 [march 9, 2026: Tumbleweeds tumble in search of a home](https://akhilaanya.github.io/2026/03/09/tumbleweeds-tumble.html)
 
 ### February
