@@ -1,7 +1,7 @@
-This site hosts my blog, as well as currently-unfinished personal projects, including my first full-length album, original and novel-based screenplays, some poetry, and other things TBA.
+This site hosts my blog, as well as currently-unfinished personal projects, including my first full-length album, original and novel-based screenplays, some poetry, and other things TBA. I try to update it on Thursdays and a weekend night, but that rarely happens--expect an update every two-three weeks if current trends indicate anything. (I write a surprising amount of blogs that never make it out of Microsoft Word.) 
 
-I am a second-year undergrad at the University of Washington triple majoring in astronomy, physics, and political science. I decided to stop affiliating this website with my school/work life, so that's all you need to know! ;)
+I am a second-year undergrad at the University of Washington triple majoring in astronomy, physics, and political science. I do gravity and M31 (Andromeda galaxy) resarch, work on telescopes, and think about climate maladaptation policies. Maybe I will write about these things sometimes in my blog too. I tend to write advice-y posts about setting boundaries and respecting yourself, dealing with romantic relationships, work-life balance, etc. I try to be honest and without shame in the hope that it helps some reader to have almost-20 year old's insight about the world. I've been here for this long, anyway. :) 
 
-I play the tenor saxophone in jazz/concert bands, run long-distance, read and write a lot, do all sorts of puzzles, and garden. I also enjoy the occasional bike ride, and increasingly love painting! 
+For fun, I play the tenor saxophone in jazz/concert bands, run long-distance, read and write a lot, do all sorts of puzzles, and garden. I also enjoy the occasional bike ride, and increasingly love painting! 
 
-You can contact me at my (personal) email below! Please send whatever's on your mind, even feedback on my writing, but I'd especially listen to, watch, or read any recommendations. 
+You can contact me at my (personal) email below! Please send whatever's on your mind, even feedback on my writing, but I'd especially listen to, watch, or read any recommendations. Also, do give me suggestions for future blogs! I have a running list but I'm always happy to address a particular topic, or at least try to. 
