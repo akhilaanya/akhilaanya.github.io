@@ -6,8 +6,6 @@ title: Archive
 ### May 
 [may 7, 2026: Build that wall!](https://akhilaanya.github.io/2026/05/07/build-that-wall.html)
 
-[may 3, 2026: All the pain money can't buy](https://akhilaanya.github.io/2026/05/03/all-the-pain-money-can't-buy.html)
-
 ### March
 [march 18, 2026: Ramblings about life and love and loss](https://akhilaanya.github.io/2026/03/18/ramblings-life-love-loss.html)
 
