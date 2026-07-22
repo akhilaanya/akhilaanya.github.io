@@ -1,4 +1,4 @@
-# They’re really saying “I love you”
+# We all know how loving ends
 ### Monday, June 15, 2026 8:41 PM PST
 ### Berkeley, CA
 
