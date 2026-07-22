@@ -4,7 +4,7 @@ title: Archive
 ---
 ## 2026
 ### June
-[june 15, 2026: They're really saying, "I love you"](https://akhilaanya.github.io/2026/06/15/they're-really-saying-i-love-you.html)
+[june 15, 2026: We all know how loving ends](https://akhilaanya.github.io/2026/06/15/we-all-know-how-loving-ends.html)
 
 ### May 
 [may 7, 2026: Build that wall!](https://akhilaanya.github.io/2026/05/07/build-that-wall.html)
